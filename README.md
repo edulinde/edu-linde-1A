@@ -6,4 +6,5 @@ Utilizo esse espaço para minha organização e compartilhamento dos meu projeto
 Você pode entrar em contato comigo 📫
 00001112114786sp@al.educacao.sp.gov.br
 
-@edulinde
+@edulinde 
+https://media1.tenor.com/m/O3K0cNYav1EAAAAd/daenerys-targaryen.gif
